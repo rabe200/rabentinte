@@ -12,3 +12,8 @@ I am just a raven exploring the outer worlds of the internet. "Das Internet ist 
 - write a book called **AI: no escape (and monkeys)**
 
 ![link](https://rabe.wtf/rewireYourBrain.jpg)
+
+
+![link](https://media4.giphy.com/media/Ur1UMOSyS154zq6EvV/giphy.gif?cid=790b761153c8d6d5b9665c9c006994c8956acc85c1d28415&rid=giphy.gif&ct=g)
+
+[INSTA](https://instagram.com/rabentinte) [x]
